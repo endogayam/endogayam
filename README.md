@@ -1,0 +1,2 @@
+# endogayam
+Gunakanlah sebaik"nya..
